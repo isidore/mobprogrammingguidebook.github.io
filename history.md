@@ -36,13 +36,11 @@ And indeed, for almost every line of this book, Maaret was the driver and I was 
 ### History with Maaret
 
 
-Maaret and I dated from late 2014 until July 18, 2018.  
-![break up](images/history/text_breakup.png)  
+Maaret and I dated from late 2014 until July 18, 2018.   
 
  We lived together for much of that time. I moved into my own place in Finland in spring 2018 but we continued to date. Maaret has two wonderful kids that I love very much, so I got a place across the street from her so I could continue to be part of their lives. At the time she was very supportive of this.
 
 When we initially separated, Maaret was still supportive of the me being part of the kid’s life. Even when she was angry at me and wanted to hurt me by doing the same thing, she knew was effective at hurting me.  
-![break up](images/history/text_steal_work.png)
 
 It wasn't until I met someone new that all that changed. I actually meet someone completely new a very short time afterwards (August 4th) on the other side of the world. When I met my current girlfriend Maaret stopped me the kids from being allowed at my place and from me seeing them. I thought this might just be a short angry burst, but after a few months not only had it not passed, but she was telling the kids that "I was free to see them", but me "That I wasn't allowed to". This creates a bad dynamic where they feel I'm not seeing them 'on purpose'. Eventually I gave up and moved back to America.
 
@@ -50,7 +48,6 @@ It wasn't until I met someone new that all that changed. I actually meet someone
 
 On  Aug 19,2018 Maaret decided to remove me as author form the book.   
 
-![break up](images/history/text_steal_work2.png)
 
 She also changed the cover to black (still using the photo I took).
 
